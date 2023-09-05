@@ -1,2 +1,2 @@
 # Sagitto
- jan je closeted marksist
+ jan je uormareni marksist
